@@ -10,4 +10,7 @@
 
 
 
-![](kolej.gif)
+https://github.com/sedatcalis/kolej-main/assets/140658531/bd2d4bf3-a112-4186-b0b5-b5fe2e934a32
+
+
+
